@@ -116,7 +116,7 @@ https://vimeo.com/1058341570
 </ul>
 <h2><span style="color: #008080;"><strong>AI VIDEOFLIX OTOS</strong></span></h2>
 <h3><span style="color: #ff6600;"><strong>AI VideoFlix Bundle Deal (SAVE $255)</strong></span></h3>
-AI VideoFlix Bundle Special Offer Get $255 Discount <img class="emoji" role="img" draggable="false" src="https://s.w.org/images/core/emoji/14.0.0/svg/1f60e.svg" alt="😎" />
+AI VideoFlix Bundle Special Offer Get $255 Discount
 
 Bundle Deal Includes AI VideoFlix “FE” + All OTO’S For Low One-Time Price
 
